@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @giorgigagoshidze
+- 👋 Hi, I’m giorgi gagoshidze
 - 👀 I’m interested in technology
 - 🌱 I’m currently learning in ✨GOA✨
 - 🥰 pronaun he/him
